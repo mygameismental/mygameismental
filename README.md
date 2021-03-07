@@ -5,5 +5,5 @@
 - 👯 I’m looking to collaborate on blockchain smart contract projects
 - 🤔 I’m looking for help with coding challenges and solving problems with code
 - 💬 Ask me how I'm teaching my kids everything I'm learning in tech
-- 📫 How to reach me: https://linkedin.com/kenyonowilson
+- 📫 How to reach me: https://www.linkedin.com/in/kenyonwilson/
 - ⚡ Fun fact: Technology is awesome and I can't believe its not butter😂😂😂
